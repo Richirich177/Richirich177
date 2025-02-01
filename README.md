@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @harshjsr04
+- 👋 Hi, I’m @richirich177
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning how crypto market works
 - 💞️ I’m looking to collaborate on crypto and stock market
